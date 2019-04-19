@@ -1,5 +1,5 @@
-title:               Celeste
-url:                 https://nicoelayda.github.io
+title:               Every Captive Thought
+url:                 http://everycaptivethought.com
 baseurl:             ""
 
 markdown:            kramdown
@@ -16,9 +16,9 @@ sass:
   style:             :compressed
 
 author:
-  name:              Nico Elayda
-  url:               nicoelayda.github.io
-  email:             nico@elayda.com
+  name:              Kevin Behringer
+  url:               everycaptivethought.com
+  email:             kevinbehringer@gmail.com
 
 plugins:
   - jekyll-coffeescript
