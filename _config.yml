@@ -1,6 +1,6 @@
 title:               Every Captive Thought
 url:                 http://everycaptivethought.com
-baseurl:             "http://everycaptivethought.com/blog"
+baseurl:             ""
 
 markdown:            kramdown
 highlighter:         rouge
