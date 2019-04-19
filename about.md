@@ -3,20 +3,12 @@ layout: page
 title: About
 ---
 
-<p class="message">
-  Hey there! This page is included as an example. Feel free to customize it for your own use upon downloading. Carry on!
-</p>
+## Hi, I’m Kevin
 
-Celeste is a lightweight Jekyll theme that features a minimalist, content-first design. It places your content center stage and lets your readers view them in a clutter-free environment without visual distractions. It is based on [Poole](https://github.com/poole/poole), the Jekyll butler, by [@mdo](https://twitter.com/mdo).
+I’m a Christian, husband, and father from a small town in Wisconsin.
 
-In addition to using Poole as its foundation, Celeste is also built using the following open-source projects:
+My whole life I have been better at writing than talking. As I’m sure plenty of people will attest, they’d rather I had written a letter than stood there talking to them. At least then it would have been easier to ignore what I was saying...
 
-* [normalize.css](http://necolas.github.io/normalize.css/), a modern, HTML5-ready alternative to CSS resets.
-* [Font Awesome](http://fontawesome.io/), the iconic font and CSS toolkit.
-* [Hover.css](http://ianlunn.github.io/Hover/), a collection of CSS3 powered hover effects.
+The point is, I’ve always found that writing helps me to clarify my thoughts. When I take the time to write things down, I tend to have more clarity and am better able to get my point across. So that’s what I hope to do here. Think through current topics, ancient topics, and everything in between.
 
-Celeste is <i class="fa fa-code"></i> with <i class="fa fa-heart"></i> by [@nicoelayda](https://github.com/nicoelayda). Learn more and contribute on [GitHub](https://github.com/nicoelayda/celeste).
-
-Have questions or suggestions? Feel free to [open an issue on GitHub](https://github.com/nicoelayda/celeste/issues/new) or [ask me on Twitter](https://twitter.com/nicoelayda).
-
-Thanks for reading!
+Won’t you join me as I think out loud about matters of faith, culture, politics, and anything else that I find interesting? 
