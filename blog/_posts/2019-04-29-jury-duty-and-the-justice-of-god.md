@@ -1,7 +1,7 @@
-- - - -
+---
 layout: post
 title: How Jury Duty Shows the Character of God
-- - - -
+---
 
 Jury duty. 
 
