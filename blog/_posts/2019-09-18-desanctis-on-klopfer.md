@@ -1,3 +1,8 @@
+---
+layout: post
+title: Yes, they are human. But is that enough? 
+---
+
 [Alexandra Desanctis on the widked man, Ulrich Klopfer »](https://www.nationalreview.com/2019/09/these-are-human-beings/)
 
 > Klopfer’s neighbors did not have to tread on his victims in the street, but in his careless collection of these remains, he has forced us to look with horror at what abortion does to the fetus, to admit to ourselves that he or she is but a tiny child. The truth has slipped in: Abortion is a violent act, the taking of a human life.
