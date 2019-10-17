@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Finally, a Democrat I Could Vote For
---
+---
 
 [The Christian Post](https://www.christianpost.com/news/democratic-lawmaker-says-her-pro-life-views-based-on-christianity-not-politics.html?fbclid=IwAR3sDPT36TEoA1kRL1WZuetPZq9Zs7o-M1vYei_nHTKlHaK1nb_Ch3GNBv0)
 
