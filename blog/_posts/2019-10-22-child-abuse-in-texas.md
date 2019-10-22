@@ -19,7 +19,7 @@ Another telling point in the article is a quote from Rebekka Ouer, who is associ
 
 What is striking about that quote is this woman admits that this is a condition warranting a psychological assessment, yet the court is forcing a parent to go against their will and allow their child to be irrevocably mutilated at the age of seven. 
 
-In this age of celebrating sin in the open square, it's no surprise that this would be celebrated. People who want to continue to revel in their sin of trangenderism will hold this poor boy up as a poster child, further abusing him for their own gain. 
+In this age of celebrating sin unashamedly, it's no surprise that this too would be celebrated. People who want to continue to revel in their sin of trangenderism will hold this poor boy up as a poster child, further abusing him for their own gain. 
 
 Sadly, the father who is trying to fulfill his God-given duty to protect his son, seems to on course to not only lose that battle, but lose his child in the process. This court, this mother, and everyone celebrating this decision, should be ashamed and punished for their failure to protect the innocence of this poor boy.
 
