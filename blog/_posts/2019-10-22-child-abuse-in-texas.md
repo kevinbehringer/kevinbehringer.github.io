@@ -11,7 +11,7 @@ As a father of a 7-year-old boy, who bounces between wanting to be a ninja and a
 
 In the Texas case, it's not a parent's failure to guide their child that is at issue - it's something much worse. In this case, a parent is actively influencing their child to reject how he was made by God, and doing so (seemingly) to fulfill her own desires to have a daughter rather than a son. Add to the fact that the other parent is rightly trying to protect his child and is being prevented from doing so by the courts, and you have a sad story unraveling in the life of a 7-year-old boy.
 
-We've seen this [throughout](https://www.nytimes.com/2018/04/28/world/europe/uk-alfie-evans-dead.html) [the world](https://en.wikipedia.org/wiki/Charlie_Gard_case) world, cases of courts holding up their own activist interest above the the interest of the parent - with disastrous results. While these cases sadly resulted in the death of the children, the case in Texas is one that will force life-altering changes on a child who will have to live with them for the rest of his life. 
+We've seen this [throughout](https://www.nytimes.com/2018/04/28/world/europe/uk-alfie-evans-dead.html) [the world](https://en.wikipedia.org/wiki/Charlie_Gard_case), cases of courts holding up their own activist interest above the the interest of the parent - with disastrous results. While these cases sadly resulted in the death of the children, the case in Texas is one that will force life-altering changes on a child who will have to live with them for the rest of his life. 
 
 Another telling point in the article is a quote from Rebekka Ouer, who is associated with Dallas Rainbow Therapy:
 
