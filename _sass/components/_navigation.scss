@@ -26,6 +26,7 @@
       color: $nav-link-color;
       display: block;
       text-decoration: none;
+      border-bottom: none !important;
       padding: $nav-link-padding-y $nav-link-padding-x;
     }
   }
