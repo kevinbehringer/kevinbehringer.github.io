@@ -1,4 +1,3 @@
-
 ---
 layout: post
 title: Jameela Jamil and the Depravity of the Pro-Abortion Crowd
