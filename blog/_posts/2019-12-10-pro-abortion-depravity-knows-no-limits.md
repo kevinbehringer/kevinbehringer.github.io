@@ -5,7 +5,7 @@ title: Jameela Jamil and the Depravity of the Pro-Abortion Crowd
 
 Recently, I was scrolling through my Twitter feed (a destructive hobby if ever there was one) and I came across this tweet, highlighting the depths of depravity in the minds of the pro-abortion folks.
 
-<blockquote class="twitter-tweet"><p lang="en" dir="ltr">Receiving THOUSANDS of messages about how I made a mistake having an abortion 7 years ago and how I must be a miserable person... I am in fact a happy, thriving multi millionaire, madly in love, with free time, good sleep and a wonderful career and life. But thanks for checking💋 <a href="https://t.co/F0QqQVv1tQ">pic.twitter.com/F0QqQVv1tQ</a></p>&mdash; Jameela Jamil 🌈 (@jameelajamil) <a href="https://twitter.com/jameelajamil/status/1203071973917515777?ref_src=twsrc%5Etfw">December 6, 2019</a></blockquote> 
+>Receiving THOUSANDS of messages about how I made a mistake having an abortion 7 years ago and how I must be a miserable person... I am in fact a happy, thriving multi millionaire, madly in love, with free time, good sleep and a wonderful career and life. But thanks for checking💋 <a href="https://t.co/F0QqQVv1tQ">pic.twitter.com/F0QqQVv1tQ</a></p>&mdash; Jameela Jamil 🌈 (@jameelajamil) 
 
 Now remember, abortion is the taking of an innocent human life. The pro-abortion camp can say all they want that it’s a clump of cells, it’s not a real life, but they’re wrong. Plain and simple. Once conceived, that child is not only a living, distinct human being, but also made in the image of God.
 
