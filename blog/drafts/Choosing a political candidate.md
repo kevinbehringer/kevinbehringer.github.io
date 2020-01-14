@@ -1,5 +1,5 @@
-# Choosing a political candidate
-In 2016 I, and many other Christians, struggled to decide who would receive our vote for president. Now, the jaded among you may just assume that Christians are always Republicans, but this is not the case. Sure, for some they default to the Republican Party, often because the other side represents much of what we are opposed to, but Christianity and Republicanism are no synonyms - regardless of what some may say.
+ # Choosing a political candidate
+In 2016 I, like many other Christians, struggled to decide who would receive our vote for president. Now, the jaded among you may just assume that Christians are always Republicans, but this is not the case. Sure, for some they default to the Republican Party, often because the other side represents much of what we are opposed to, but Christianity and Republicanism are no synonyms - regardless of what some may say.
 
 As the presidential primary plodded on, it became clear that Donald Trump would be the Republican nominee, causing a crisis of conscience for many Christians - myself included. The news reports, audio recordings, rumors of marital infidelity, and overall boorish behavior inconsistent with a Christian worldview made the idea of casting a vote for Trump difficult to swallow.
 
