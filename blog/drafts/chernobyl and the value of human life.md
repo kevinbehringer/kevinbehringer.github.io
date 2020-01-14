@@ -1,0 +1,17 @@
+Recently, my wife and I worked through the fantastic HBO miniseries, Chernobyl. If you haven't seen it, I highly recommend you do. (Yes, there is some language to be aware of, but if you can work to contain an explosion of a nuclear reactor and NOT swear at all, you're a better man than I).
+
+Following the series, we started listening to a podcast with the creator describing the background of the show, highlighting what was true and what had to adjusted for TV, and explaining the production of the show. The podcast is also great, and I'd recommend checking that out after watching the show.
+
+During the second episode, he was discussing the differences in how the disaster was addressed in the USSR vs how it would have been approached in the United States. His description was telling of the differences between the freedom we hold in America vs the view of communism and, ultimately, showed the ultimate result of a society founded on a Christian ethic compared to one that was not. 
+
+The hosts are having a discussion about the Soviet refusal to admit there was a problem, and then, upon realizing there was, failed to properly inform their citizenry of the dangers. They then continue by talking about men who went and actually looked into the open core of the reactor, knowing it would kill them, because they were told to. Perhaps they felt a duty, and it's hard to really know, but in the depiction, they seem reluctant to go, knowing their fate, but go anyway. That led the show's creator to say this.
+
+> "I don't know what else to call it but Soviet civic duty. It is very noble, and admirable, and beautiful, and then of course profoundly sad underneath it. But it's why I say, if this had happened in the United States - for instance, if Three Mile Island had exploded in this regard - I think what would happen is that, we would have evacuated the area very quickly and then, I don't know, put a rope around a large section of the Middle Atlantic and say, "No one can go there anymore because they'll die."" And that would be it."
+
+As I listened through this a second time, it really struck me that this in many ways shows the difference between the two societies, one godless and the other built on Christian values.
+
+He presents this as a noble thing. That these men are going in and risking their lives (essentially committing suicide) to check the core and, ultimately, protect the Soviet reputation. Elsewhere he says that the cleanup and reaction afterward couldn't have happened anywhere else because the Soviets were so willing to send people in to do what needed to be done. Almost as a positive thing.
+
+For those people who did give their lives to help, they are heroes. They did what they could and, in many cases, saved the lives of thousands or millions. But, to present the USSR as somehow noble because they were willing to send people to their death, even though they were successful, is quite a revision of history.
+
+When you found a nation apart from God, it's not hard to see how you can get here. If you don't see people as made in the image of God, as having inherent worth endowed by their Creator, it becomes very easy to see them as expendable. And while the show does show the dedication and sacrifice of many of the people who were heroes during this event, it also shines the light on the cavalier attitude toward human value that disappears when you remove God from society.
