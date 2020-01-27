@@ -1,7 +1,7 @@
 ---
 layout: post
 title: The Danger of Paula White in the White House
---
+---
 
 [Daily Mail](https://www.dailymail.co.uk/news/article-7933365/Donald-Trumps-spiritual-adviser-Paula-White-calls-satanic-pregnancies-miscarry.html)
 
